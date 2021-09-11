@@ -1,1 +1,1 @@
-# NaikGang.github.io
+# NaikGang
